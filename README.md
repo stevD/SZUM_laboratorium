@@ -1,0 +1,1 @@
+SZUM_laboratorium
